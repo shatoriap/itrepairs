@@ -1,1 +1,1 @@
-<h1> Fixing Computers, iPhones, and iPads <h1>
+<h1> Electronic Repairs (Computers, iPhones, iPads, and More!) <h1>
