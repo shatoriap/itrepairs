@@ -5,4 +5,4 @@
 Here are a few repairs that I've done! I hope that you leave this page with curiosity and shock at how our electronics look on the inside and what it takes to fix them.</p>
 
 <p> HP Pavilion 15 Laptop Replacement </p>
-![Uploading HP Pavilion 15 Laptop Replacement.jpg…]()
+
